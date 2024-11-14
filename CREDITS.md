@@ -1,0 +1,1 @@
+I used chatGPT for basic commands and I also collaborated with Brenda Ramirez
